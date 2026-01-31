@@ -1,5 +1,5 @@
 
-please share this link with your friends i have update link of youtube  --> 
+youtube  link --> 
 [YOUTUBE CHANNEL](https://youtube.com/@telunextlearning?si=td7jnMTeNNDh59uG)
 
 
