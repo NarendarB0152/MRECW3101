@@ -1,6 +1,6 @@
 
 for my upcomming online class --> 
-[YOUTUBE CHANNEL](www.youtube.com/@telunextlearning)
+[YOUTUBE CHANNEL](https://youtube.com/@telunextlearning?si=td7jnMTeNNDh59uG)
 
 
 Do follow in linked in --> 
